@@ -51,3 +51,7 @@ Begin with one small practice. Let the record become a way of seeing.
 ## What's New
 
 First release: a local-first daily cultivation practice with Moral, Intellectual, and Aesthetic themes, weekly records, and private reflections.
+
+## Support URL
+
+https://xiantong832.github.io/three-cultivations-site/support.html
