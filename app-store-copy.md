@@ -6,7 +6,7 @@ Three Cultivations
 
 ## Subtitle
 
-Daily practice for a complete life
+Daily practice for growth
 
 ## Promotional text
 
