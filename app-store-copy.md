@@ -14,7 +14,7 @@ Practice how you act, think, and notice the world—one honest observation at a 
 
 ## Keywords
 
-self improvement,reflection,journal,mindfulness,virtues,personal growth,character,thinking,creativity,wellbeing,daily practice,habit tracker
+virtues,reflection,journal,mindfulness,character,critical thinking,creativity,wellbeing
 
 ## Description
 
